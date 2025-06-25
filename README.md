@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://dy4-04.pages.dev/">抖音成年版</a>
 
-点击访问：<a href="https://cg8-46.pages.dev/">新瓜</a>
+点击访问：<a href="https://cg8-46.pages.dev/">社区吃瓜 新瓜</a>
 
 点击访问：<a href="https://aw4-19.pages.dev/">暗网禁区 秘密地址</a>
 
@@ -33,7 +33,7 @@
 
 点击访问：<a href="https://cg5-47.pages.dev/">网站官网入口在线观看</a>
 
-点击访问：<a href="https://cg2-47.pages.dev/">瓜田</a>
+点击访问：<a href="https://cg2-47.pages.dev/">吃瓜官网 瓜田</a>
 
 点击访问：<a href="https://aw8-23.pages.dev/">暗网视频 新领域</a>
 
