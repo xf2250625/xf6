@@ -15,7 +15,7 @@
 
 点击访问：<a href="https://aw7-12.pages.dev/">暗网TV官网</a>
 
-点击访问：<a href="https://cg1-48.pages.dev/">八卦</a>
+点击访问：<a href="https://cg1-48.pages.dev/">吃瓜网站 八卦</a>
 
 点击访问：<a href="https://cg9-36.pages.dev/">新吃瓜视频网页版</a>
 
